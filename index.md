@@ -84,5 +84,3 @@ If you have any questions about these terms, please feel free to contact us at b
 
 
 
-URL: https://sites.google.com/view/secure-messenger-privacypolicy/home
-
